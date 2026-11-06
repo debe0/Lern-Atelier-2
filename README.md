@@ -8,3 +8,8 @@
 ### Ziele:
 1. Ein eigenes Projekt finden für den Lern-Atelier.
 2. Heute daran arbeiten.
+
+## 3. Tag, 06.11.2026
+### Ziele:
+1. Am Projekt weiterarbeiten.
+2. Falls Zeit/Lust auch am Modul 162 weiterarbeiten. 
