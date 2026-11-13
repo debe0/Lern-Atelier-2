@@ -13,3 +13,7 @@
 ### Ziele:
 1. Am Projekt weiterarbeiten.
 2. Falls Zeit/Lust auch am Modul 162 weiterarbeiten. 
+
+## 4. Tag, 13.11.2026
+### Ziele:
+1. Am eigenen Projekt weiterarbeiten.
